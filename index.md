@@ -1,0 +1,1 @@
+![Comics](full.png)
